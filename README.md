@@ -14,4 +14,4 @@
 - Contamos com ro´tulos e vinículas variadas mas sempre com foco e relembrar o sabor Italiano.
 - Temos como ponto fundamental a autonomia do nosso cliente de escolher qual vinho quer provar sem que
 tenha que comprar a garrafa inteira.
-https://www.canva.com/pt_br/modelos/EAE4WhJFLHg-taca-de-vinhos-qual-seu-favorito-ilustracao-vinho-story-de-instagram/
+  
