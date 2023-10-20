@@ -14,4 +14,5 @@
 - Contamos com ro´tulos e vinículas variadas mas sempre com foco e relembrar o sabor Italiano.
 - Temos como ponto fundamental a autonomia do nosso cliente de escolher qual vinho quer provar sem que
 tenha que comprar a garrafa inteira.
-  blob:https://web.whatsapp.com/21226d2b-51b2-42ef-8e4e-f635c93092d0
+  ![image](https://github.com/rafaelatenk21/rafaelatenk/assets/142686582/2e41d7bc-8652-442f-92cb-1787c91e0b4e)
+
